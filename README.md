@@ -17,3 +17,5 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![gif15](https://github.com/user-attachments/assets/61af489e-6fb4-4cb0-9583-8f19687d65d6)
    i love my bf
+
+ITS BETTER TO LOOK AT ON PC OR LAPTOP TRUST ME plus turn on light mode 
