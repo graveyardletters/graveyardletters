@@ -17,4 +17,4 @@ fandoms ㅤㅤㅤhouseki no kuni  identity v  itsv/atsv  wonderend & touhou >_<
 dni darkshippers, basic dni criteria ㅤㅤㅤint if u arent on the left obviously
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![gif15](https://github.com/user-attachments/assets/61af489e-6fb4-4cb0-9583-8f19687d65d6)
-
+preferred to read on pc/laptop
