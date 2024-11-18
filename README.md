@@ -9,4 +9,4 @@
 
  ིྀ 𓎟ᛝ𓎟𓎟　dni - the basic dni criteria , you know what you are 　𓎟𓎟ᛝ𓎟 ྀི
 
-![sl2](https://github.com/user-attachments/assets/d29a370e-3e62-4891-8c1c-2d1400e446bc)        ![sl1](https://github.com/user-attachments/assets/313984c3-6238-44f4-9336-0ce28a56e8cb)
+![ritsumika](https://github.com/user-attachments/assets/c16d539c-4bf6-4031-a805-1179546159e2)
