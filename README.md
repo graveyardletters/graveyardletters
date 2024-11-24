@@ -1,12 +1,8 @@
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤ ![111](https://github.com/user-attachments/assets/934c6332-a911-4d10-910a-076218b03a87)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ![iv2](https://github.com/user-attachments/assets/16a929aa-6805-4b0c-8b4e-38d73480cf7c)
 
-![](https://komarev.com/ghpvc/?username=lgraveyardletters&color=cb8087&style=plastic&label=the+attention+i+deserve+♡)
+$${\color{#66130d}victor / shuya / addi}$$
+$${\color{#9e1948}esfp-a╰7w8 ᘐ}$$
+$${\color{#de5d8f}ilovemybf}$$
 
-︶⊹︶︶⠀୨୧⠀︶︶⊹︶
-
- victor ノ shuya ノ ritsu ^_^ 
-
- c+h and interacting is ok!!! •⩊•
-
- ིྀ 𓎟ᛝ𓎟𓎟　dni - the basic dni criteria , you know what you are 　𓎟𓎟ᛝ𓎟 ྀི
-
-![ritsumika](https://github.com/user-attachments/assets/c16d539c-4bf6-4031-a805-1179546159e2)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤ ![222](https://github.com/user-attachments/assets/b57e69cd-66b5-4e32-afce-19af5f3907ea)
