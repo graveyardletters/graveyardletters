@@ -1,10 +1,13 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤ ![111](https://github.com/user-attachments/assets/934c6332-a911-4d10-910a-076218b03a87)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![iv2](https://github.com/user-attachments/assets/16a929aa-6805-4b0c-8b4e-38d73480cf7c)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Screen Shot 2024-12-29 at 5 28 05 PM](https://github.com/user-attachments/assets/412e4dee-a500-403b-9e09-f2b6046ae205)
 
-$${\color{#66130d}victor / shuya / addi}$$
-$${\color{#9e1948}esfp-a╰7w8 ᘐ}$$
-$${\color{#de5d8f}ilovemybf}$$
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤ ![222](https://github.com/user-attachments/assets/b57e69cd-66b5-4e32-afce-19af5f3907ea)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤ ![](https://komarev.com/ghpvc/?username=graveyardletters&color=d689a3&style=plastic&label=profile+views) $${\color{#e685a0}im–stuck–inside–a– coffin}$$
+
+$${\color{#302f2f}victor}$$
+$${\color{#302f2f}esfp-a – 7w8 }$$
+$${\color{#302f2f}ilovemybf}$$
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![div](https://github.com/user-attachments/assets/859e7f5d-4c89-47a8-a963-2d55cd4e71d6)
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       ㅤ ![](https://komarev.com/ghpvc/?username=graveyardletters&color=4d4b4b&style=plastic&label=profile+views) $${\color{#5c5a5a}im–stuck–inside–a– coffin}$$
